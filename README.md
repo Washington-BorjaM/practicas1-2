@@ -1,1 +1,0 @@
-# practicas1-2
